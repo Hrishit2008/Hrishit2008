@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Hrishit2008
 - 👀 I’m interested in making games
-- 🌱 I’m currently learning from Whitehat.jr
+- 🌱 I’m currently making a game for you
 - 💞️ I’m looking to collaborate on with some Company
 - 📫 How to reach me --- Gmail- hrishit2008@gmail.com
 
